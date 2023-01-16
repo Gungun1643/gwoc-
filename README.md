@@ -1,2 +1,0 @@
-# gwoc-
-farm to table
